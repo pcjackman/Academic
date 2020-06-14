@@ -21,4 +21,4 @@ Delivered as part of the international science festival “Pint of Science”, t
 ### Media and Online Content
 Co-authored [SMaRteN blog post](https://www.smarten.org.uk/blog/mental-health-and-wellbeing-in-phd-students-call-for-collaboration) (July 2019)
 
-[Research featured in British Psychological Society Research Digest](https://digest.bps.org.uk/2017/06/29/what-is-the-psychological-state-underlying-clutch-performance-excelling-under-pressure/) (June 2017)
+Research featured in [British Psychological Society Research Digest](https://digest.bps.org.uk/2017/06/29/what-is-the-psychological-state-underlying-clutch-performance-excelling-under-pressure/) (June 2017)

@@ -19,6 +19,8 @@ I supervise doctoral projects spanning both themes and welcome applications for 
 
 In addition to the research publications listed in reverse chronological order below, I have also led research projects commissioned by external organisations. 
 
+---
+
 ### Research Publications
 
 Authors in **bold** are researchers that I supervise or have supervised.
@@ -51,6 +53,8 @@ Swann, C., Crust, L., Jackman, P., Vella, S., Allen, M., & Keegan, R. (2017b). P
 Jackman, P.C., Swann, C., & Crust, L. (2016). Exploring athletes' perceptions of the relationship between mental toughness and dispositional flow in sport. Psychology of Sport and Exercise, 27, 56-65. https://doi.org/10.1016/j.psychsport.2016.07.007
 
 Jackman, P. C., Van Hout, M. C., Lane, A., & Fitzpatrick, G. (2015) Experiences of flow in jockeys during flat-race conditions. International Journal of Sport and Exercise Psychology, 13(3), 205-223. https://doi.org/10.1080/1612197X.2014.956327
+
+---
 
 ### Book Chapters 
 Birrer, D., Jackman, P. C., & Latinjak, A. T. (2020). Contesting the role of self-talk in sport psychology in views of mindfulness, flow, and mind wandering. In A. T. Latinjak, & A. Hatzigeorgiadis (eds.), Self-talk in sport. Routledge. https://doi.org/10.4324/9780429460623-15 

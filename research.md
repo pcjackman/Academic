@@ -15,5 +15,3 @@ This work seeks to understand the positive, rewarding experiences that athletes 
 My research in psychological wellbeing focuses on understanding the factors that can help to promote better psychological wellbeing in individuals and communities. I am leading and collaborating on research projects in this area in sport, exercise, doctoral (PhD) students, and police employees.  
 
 I supervise doctoral projects spanning both themes and welcome applications for doctoral study in any areas within or related to my research interests.
-
-In addition to the research publications listed in reverse chronological order below, I have also led research projects commissioned by external organisations. 

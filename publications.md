@@ -45,7 +45,7 @@ Cowden, R. G., Crust, L., Tibbert, S., & Jackman, P. C. (2020). Mental toughness
 
 ### Conference Abstracts
 
-Jackman, P. C., Coussens, A., Clay, G., &amp; Henderson, H. (2019). _An examination of social support, personality and psychological wellbeing in police employees. _Paper presented at The British Psychological Society Division of Occupational Psychology Annual Conference, Chester, UK._
+Jackman, P. C., Coussens, A., Clay, G., &amp; Henderson, H. (2019). An examination of social support, personality and psychological wellbeing in police employees. _Paper presented at The British Psychological Society Division of Occupational Psychology Annual Conference, Chester, UK._
 
 **Langbein, R**., Martin, D., Allen-Collinson, J., Crust, L., &amp; Jackman, P. C. (2019). &quot;I&#39;d got self-destruction down to a fine art&quot;: Exploring the lived experience of low energy availability in athletes and exercisers. _Poster presented at The British Psychological Society, Division of Sport and Exercise Psychology Annual Conference, Solihull, UK._
 

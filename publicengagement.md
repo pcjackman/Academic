@@ -10,7 +10,7 @@ I am passionate about maximising the impact of my research through public engage
 
 This talk provided an introduction to sport psychology and an initial insight into research on psychological states underlying excellent performance in sport 
 
-University of Lincoln College of Social Science Research Showcase (July 2019)
+[University of Lincoln College of Social Science Research Showcase](https://www.youtube.com/watch?v=y2FEZ_YS9Ko&t=3s) (July 2019)
 
 This talk provided a detailed insight into a paper: “Psychological States Underlying Excellent Performance in Sport: Toward an Integrated Model of Flow and Clutch States” ([open access to article](https://lncn.ac/zx6))  
 
@@ -19,6 +19,6 @@ This talk provided a detailed insight into a paper: “Psychological States Unde
 Delivered as part of the international science festival “Pint of Science”, this talk shared insights from research that has investigated optimal experiences and the effect of different goal types on levels of pleasure in physical activity. 
 
 ### Media and Online Content
-Co-authored SMaRteN blog post (July 2019)
+Co-authored [SMaRteN blog post](https://www.smarten.org.uk/blog/mental-health-and-wellbeing-in-phd-students-call-for-collaboration) (July 2019)
 
 [Research featured in British Psychological Society Research Digest](https://digest.bps.org.uk/2017/06/29/what-is-the-psychological-state-underlying-clutch-performance-excelling-under-pressure/) (June 2017)

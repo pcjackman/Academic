@@ -39,6 +39,7 @@ Jackman, P. C., Fitzpatrick, G., Lane, A., & Swann, C. (2019). Exploring bodily 
 Cowden, R.G., Crust, L, Jackman, P. C., & Duckett, T. R. (2019). Perfectionism and motivation in sport: The mediating role of mental toughness. South African Journal of Science, 115, (1/2). https://doi.org/10.17159/sajs.2019/5271
 
 Swann, C., Jackman, P. C., Schweickle, M. J., & Vella, S. A. (2019). Optimal experiences in exercise: A qualitative investigation of flow and clutch states. Psychology of Sport and Exercise, 40, 87–98. https://doi.org/10.1016/j.psychsport.2018.09.007
+
 Jackman, P. C., Crust, L., & Swann, C. (2017a). Systematically comparing methods used to study flow in sport: a longitudinal multiple-case study. Psychology of Sport and Exercise, 32, 113-123. https://doi.org/10.1016/j.psychsport.2017.06.009
 
 Jackman, P. C., Crust, L., & Swann, C. (2017b) Further examining the relationship between mental toughness and dispositional flow in sport: a mediation analysis. International Journal of Sport Psychology, 48(3), 356-374. https://doi.org/10.7352/IJSP.2017.48.356

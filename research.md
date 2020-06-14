@@ -23,7 +23,7 @@ In addition to the research publications listed in reverse chronological order b
 
 Authors in **bold** are researchers that I supervise or have supervised.
 
-### Peer-Reviewed Articles 
+#### Peer-Reviewed Articles 
 Jackman, P. C., Crust, L., & Swann, C. (2020). The role of mental toughness in the occurrence of flow and clutch states in sport. International Journal of Sport Psychology, 51(1), 1-27.
 
 Jackman, P. C., Henderson, H., Clay, G., & Coussens, A. (2020). The relationship between psychological wellbeing, social support and personality in an English police force. International Journal of Police Science & Management, 22(2), 183-193. https://doi.org/10.1177/1461355720907620

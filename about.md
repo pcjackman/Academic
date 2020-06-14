@@ -23,9 +23,9 @@ Member of the International Society of Qualitative Research in Sport and Exercis
 Below are links to my profiles on other online websites:
 
 * [Google Scholar](https://scholar.google.co.uk/citations?user=BXMc0w0AAAAJ&hl=en&oi=ao)
-* [Kudos Profile](https://www.growkudos.com/profile/patricia_jackman)
+* [Kudos](https://www.growkudos.com/profile/patricia_jackman)
 * [ORCID](https://orcid.org/0000-0002-5756-4494)
 * [Publons](https://publons.com/researcher/1791580/patricia-c-jackman/)
 * [ResearchGate](https://www.researchgate.net/profile/Patricia_Jackman3)
-* [Twitter Profile](https://twitter.com/Trish_Jackman)
+* [Twitter](https://twitter.com/Trish_Jackman)
 * [Linkedin](https://www.linkedin.com/in/patricia-jackman-67456659/)

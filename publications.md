@@ -67,7 +67,7 @@ Jackman, P.C., Fitzpatrick, G., &amp; Lane, A. (2015). Exploring the flow state 
 
 Jackman, P.C., Fitzpatrick, G., &amp; Lane, A. (2015). Exploring the flow state in professional jump jockeys: Content and connecting analyses. _Poster presented at the All-Ireland Postgraduate Conference, University of Limerick, Ireland._
 
-Jackman, P.C. (2015). Can coaches and practitioners help athletes to achieve flow states in performance? Invited presentation at the _Waterford Institute of Technology Applied Sport and Exercise Psychology Conference, Ireland._
+Jackman, P.C. (2015). Can coaches and practitioners help athletes to achieve flow states in performance? Invited presentation at the _Waterford Institute of Technology Applied Sport and Exercise Psychology Conference, Waterford, Ireland._
 
 Jackman, P.C., Fitzpatrick, G., &amp; Lane, A. (2014). An exploration of the conditions influencing the occurrence of flow in Irish professional jockeys. _Paper presented at the International Conference of Qualitative Research in Sport and Exercise Conference, University of Loughborough_, UK.
 

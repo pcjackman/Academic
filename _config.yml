@@ -9,19 +9,18 @@ owner:
   name: Patricia Jackman
   avatar: logo.jpg
   bio: "This is a sample Jekyll academic website."
-  email: laderast@ohsu.edu
+  email: 
   # Do not include the @ symbol in your Twitter username
-  twitter: laderast
-  linkedin: #username
-  github: laderast
-  orcid: # ID Number (ex. 0000-0000-0000-0000)
-  researchgate: #username
+  twitter: Trish_Jackman
+  linkedin: patricia-jackman-67456659
+  orcid: 0000-0002-5756-4494
+  researchgate: Patricia_Jackman3
   mendeley: #username
   google:
     plus: #username
     analytics:
     verify:
-    scholar: #id
+    scholar: BXMc0w0AAAAJ&hl
   facebook: #username
   instagram: #username
   bing-verify:

@@ -45,13 +45,13 @@ Cowden, R. G., Crust, L., Tibbert, S., & Jackman, P. C. (2020). Mental toughness
 
 ### Conference Abstracts
 
-Jackman, P. C., Coussens, A., Clay, G., &amp; Henderson, H. (2019). _An examination of social support, personality and psychological wellbeing in police employees. Paper presented at The__British_ _Psychological Society Division of Occupational Psychology Annual Conference, Chester, UK._
+Jackman, P. C., Coussens, A., Clay, G., &amp; Henderson, H. (2019). _An examination of social support, personality and psychological wellbeing in police employees. __ __ Paper presented at The__British_ _Psychological Society Division of Occupational Psychology Annual Conference, Chester, UK._
 
-**Langbein, R**., Martin, D., Allen-Collinson, J., Crust, L., &amp; Jackman, P. C. (2019). &quot;I&#39;d got self-destruction down to a fine art&quot;: Exploring the lived experience of low energy availability in athletes and exercisers. _Poster presented at The British Psychological Society, Division of Sport and Exercise Psychology Annual Conference, Solihull, UK.
+**Langbein, R**., Martin, D., Allen-Collinson, J., Crust, L., &amp; Jackman, P. C. (2019). &quot;I&#39;d got self-destruction down to a fine art&quot;: Exploring the lived experience of low energy availability in athletes and exercisers. _Poster presented at The British Psychological Society, Division of Sport and Exercise Psychology Annual Conference, Solihull__, UK._
 
-**Hawkins, R.** , Crust, L., Swann, C., &amp; Jackman, P. C. (2019). _The effects of goal types on affect, enjoyment, and physical activity in active and inactive adults. Paper presented at The British Psychological Society Division of Occupational Psychology Annual Conference, Solihull, UK.
+**Hawkins, R.** , Crust, L., Swann, C., &amp; Jackman, P. C. (2019). _The effects of goal types on affect, enjoyment, and physical activity in active and inactive adults._ _Paper presented at The__British_ _Psychological Society Division of Occupational Psychology Annual Conference, Solihull, UK._
 
-Schweickle, M., Swann, C., Jackman, P. C., &amp; Vella, S. (2019). The psychology of clutch performance: A systematic review. _Paper presented at The __British__ Psychological Society Division of Sport and Exercise Psychology Annual Conference, Solihull__, UK._
+Schweickle, M., Swann, C., Jackman, P. C., &amp; Vella, S. (2019). The psychology of clutch performance: A systematic review. _Paper presented at The __British__ Psychological Society Division of Sport and Exercise Psychology Annual Conference __, Solihull__ , UK._
 
 Sisson, K., &amp; Jackman, P. C. (2019). _From enrolment to completion: An exploration of psychological wellbeing in doctoral students during the PhD journey._ _Paper presented at the_ _International Conference on the Mental Health &amp; Wellbeing of Postgraduate Researchers, Brighton, UK._
 

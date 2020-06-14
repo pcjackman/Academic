@@ -41,5 +41,6 @@ Birrer, D., Jackman, P. C., & Latinjak, A. T. (2020). Contesting the role of sel
 
 Cowden, R. G., Crust, L., Tibbert, S., & Jackman, P. C. (2020). Mental toughness development and training in sport. In M. Bertollo, E. Filho, & P. C. Terry (eds.), *Advancements in Mental Skills Training*. Routledge. 
 
-### Conferance Abstracts
+---
 
+### Conference Abstracts

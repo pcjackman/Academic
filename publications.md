@@ -44,3 +44,33 @@ Cowden, R. G., Crust, L., Tibbert, S., & Jackman, P. C. (2020). Mental toughness
 ---
 
 ### Conference Abstracts
+
+Jackman, P. C., Coussens, A., Clay, G., &amp; Henderson, H. (2019). _An examination of social support, personality and psychological wellbeing in police employees. __ __ Paper presented at The__British_ _Psychological Society Division of Occupational Psychology Annual Conference, Chester, UK._
+
+**Langbein, R**., Martin, D., Allen-Collinson, J., Crust, L., &amp; Jackman, P. C. (2019). &quot;I&#39;d got self-destruction down to a fine art&quot;: Exploring the lived experience of low energy availability in athletes and exercisers. _Poster presented at The British Psychological Society, Division of Sport and Exercise Psychology Annual Conference, Solihull__, UK._
+
+**Hawkins, R.** , Crust, L., Swann, C., &amp; Jackman, P. C. (2019). _The effects of goal types on affect, enjoyment, and physical activity in active and inactive adults._ _Paper presented at The __British_ _Psychological Society Division of Occupational Psychology Annual Conference, Solihull, UK.__ ** ** _
+
+Schweickle, M., Swann, C., Jackman, P. C., &amp; Vella, S. (2019). The psychology of clutch performance: A systematic review. _Paper presented at The __British__ Psychological Society Division of Sport and Exercise Psychology Annual Conference, Solihull__, UK._
+
+Sisson, K., &amp; Jackman, P. C. (2019). _From enrolment to completion: An exploration of psychological wellbeing in doctoral students during the PhD journey._ _Paper presented at the_ _International Conference on the Mental Health &amp; Wellbeing of Postgraduate Researchers, Brighton, UK._
+
+Jackman, P.C., Crust, L., &amp; Swann, C. (2016). A mixed method investigation of the relationship between mental toughness and flow in sport. _Poster presented at The British Psychological Society, Division of Sport and Exercise Psychology Annual Conference, Cardiff__, UK._
+
+Jackman, P.C., Crust, L., &amp; Swann, C. (2015). Investigating the relationship between mental toughness and flow experiences. _Paper presented at The British Psychological Society, Division of Sport and Exercise Psychology Annual Conference__, UK._
+
+Swann, C., Crust, L., Keegan, R., &amp; Jackman, P. (2015). Psychological states underlying peak performance across sports. _Poster presented at The British Psychological Society, Division of Sport and Exercise Psychology Annual Conference, Leeds__, UK._
+
+Jackman, P.C., Crust, L., &amp; Swann, C. (2015). Exploring the relationship between mental toughness and experiences of flow in athletes._ Paper presented at The British Psychological Society, Division of Sport and Exercise Psychology Annual Conference, Leeds__, UK._
+
+Jackman, P.C., Fitzpatrick, G., &amp; Lane, A. (2015). Exploring the flow state in professional jump jockeys: Content and connecting analyses. _Poster presented at the European Federation of Sport Psychology (FEPSAC) Annual Conference, Bern, Switzerland._
+
+Jackman, P.C., Fitzpatrick, G., &amp; Lane, A. (2015). Exploring the flow state in professional jump jockeys: Content and connecting analyses. _Poster presented at the All-Ireland Postgraduate Conference, University of Limerick, Ireland._
+
+Jackman, P.C. (2015). Can coaches and practitioners help athletes to achieve flow states in performance? Invited presentation at the _Waterford Institute of Technology Applied Sport and Exercise Psychology Conference, Ireland._
+
+Jackman, P.C., Fitzpatrick, G., &amp; Lane, A. (2014). An exploration of the conditions influencing the occurrence of flow in Irish professional jockeys. _Paper presented at the_ _International Conference of Qualitative Research in Sport and Exercise Conference, University of Loughborough__, UK._
+
+Jackman, P.C., Fitzpatrick, G., &amp; Lane, A. (2014). An exploration of the antecedents influencing the horse-jockey dyad in Irish professional jockeys. _Paper presented at the All-Ireland Postgraduate Conference, University of Limerick__, UK._
+
+Jackman, P.C., &amp; Fitzpatrick, G (2013). An exploration of the conditions influencing the occurrence of flow in Irish professional flat-race jockeys. _Paper presented at the British Association of Sport and Exercise Science Annual Conference, University of Central Lancashire__, UK._
